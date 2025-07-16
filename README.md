@@ -1,4 +1,4 @@
-ACG游戏盛宴，SLG/RPG/二次元游戏大集合，免费畅享不停歇！
+ACG游戏盛宴，SLG/RPG/二次元游戏大集合，免费畅享不停歇！mmmm
 
 网站地址：<https://www.ntrku.com/>
 网站地址：<https://www.ntrku.com/>
